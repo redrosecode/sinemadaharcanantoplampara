@@ -1,0 +1,2 @@
+# sinemadaharcanantoplampara
+sinemaücret
